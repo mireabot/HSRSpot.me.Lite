@@ -1,0 +1,1 @@
+# HSRSpot.me.Lite
